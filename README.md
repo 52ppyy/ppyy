@@ -1,10 +1,10 @@
-:bangbang::bangbang:啪啪影院 地址发布:bangbang::bangbang:
+啪啪影院最新地址发布页
 ==
-:star: :point_right: 【地址一】 ：https://www.ppyy67.com
+:star: :point_right: 【地址一】 ：http://www.ppyy113.com
 ------
-:star: :point_right: 【地址二】 ：https://www.ppyy68.com
+:star: :point_right: 【地址二】 ：https://www.ppyy102.com
 ------
-:star: :point_right: 【地址三】 ：https://www.ppyy69.com
+:star: :point_right: 【地址三】 ：https://www.ppyy101.com
 ------
 :star: :point_right: 【大陆地址发布页】 ：https://www.aazzav.com
 ------
