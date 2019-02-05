@@ -1,6 +1,6 @@
 啪啪影院最新地址发布页
 ==
-:star: :point_right: 【地址一】 ：http://www.ppyy195.com
+:star: :point_right: 【地址一】 ：http://www.ppyy196.com
 ------
 :star: :point_right: 【地址二】 ：https://www.ppyy102.com
 ------
